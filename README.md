@@ -3,6 +3,4 @@ An archive of all official publicly-released art, assets and resources from the 
 
 The sources for all of these is a mixture of the official Tumblr, Twitter, and Discord. No Patreon content will be uploaded here unless it is explicitly stated to be okay to do so by the Sparklecrew. If you have questions, you can contact me on my Tumblr at https://boxafunfi.tumblr.com/
 
-I AM NOT AFFILIATED WITH THE SPARKLECREW OR THE COMIC ITSELF! I am merely a very dedicated fan with a strong passion for archival, media preservation and easy access.
-
 Have a good day! ✨❤️🧡💛💚💙💜✨
