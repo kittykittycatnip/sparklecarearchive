@@ -1,3 +1,4 @@
+![header](https://user-images.githubusercontent.com/103729851/167128706-16936dc1-9301-48db-9a26-9e842f29a40c.png)
 # WELCOME TO THE SPARKLECARE ARCHIVES!
 An archive of all official publicly-released art, assets and resources from the webcomic Sparklecare! This archive will be updated over time as new art is posted, and as higher res images become available. If you have any art not here, please submit it to me! Any and all submissions are appreciated, no matter the quality or filetype!
 
